@@ -1,1 +1,0 @@
-Karmine Corp Network (KCN) is the ultimate platform for Karmine Corp esports fans. Providing match updates, player stats, and exclusive content, it's the go-to hub for in-depth coverage and live rankings, delivering an immersive esports experience.
